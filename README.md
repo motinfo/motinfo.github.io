@@ -1,1 +1,0 @@
-# motinfo.github.io
